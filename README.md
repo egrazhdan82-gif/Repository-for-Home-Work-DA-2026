@@ -1,1 +1,1 @@
-# My Home Work for cource DA 2026
+# My Home Work for course DA 2026
